@@ -1,0 +1,1 @@
+# informer_gold_forex
